@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Klanker
+- 👋 Hi, I’m Klank
 - 👀 I’m interested in your mom
 - 🌱 I’m currently learning nothing i already know all
 - 💞️ I’m looking to collaborate on why the hell is that a heart emoji
